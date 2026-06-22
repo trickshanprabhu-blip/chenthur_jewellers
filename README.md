@@ -1,1 +1,0 @@
-# chenthur_jewellers
